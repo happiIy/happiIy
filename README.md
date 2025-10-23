@@ -4,5 +4,5 @@
 <p align="center">
 I've seen wonders out there in the cosmos few humans will ever behold.</p>
   <p align="center">
-<a href="https://rentry.co/hotpants" rel="nofollow">rentry.co/hotpants</a>
+<a href="https://rentry.co/kakyoin" rel="nofollow">rentry.co/kakyoin</a>
 </p>
