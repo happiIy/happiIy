@@ -4,7 +4,7 @@
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/DR" width="250" >
   </p>
 <p align="center">
-seth sheher 22yrs <br>
+seth heher 22yrs <br>
   jjba + marvel (F4) 
 </p>
   <p align="center">
