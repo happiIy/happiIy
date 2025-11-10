@@ -1,6 +1,5 @@
 <p align="center">
   💚 💙<br>
-  ♡ reedsue and doomreed ♡ <br>
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/DR" width="250" >
   </p>
 <p align="center">
